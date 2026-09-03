@@ -1,4 +1,4 @@
 ## Hi there 👋
+<img width="813" height="751" alt="image" src="https://github.com/user-attachments/assets/d994b6b1-980a-4da6-9b1a-386d6ca9dc55" />
 
-https://github.com/AleksandrZagrebin/AleksandrZagrebin/blob/main/Resume.pdf
-[Here https://github.com/ваш_ник/ваш_ник/blob/main/резюме.pdf)
+
